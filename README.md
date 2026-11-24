@@ -1,5 +1,5 @@
-                  ຣɑ𝑛𝚍𝚛ɑ e ⍴𐑾ᥒ 𓈒 ◠
-                  𓈒 ◡ txt   txt    e
-
+                  c+h always unless stated otherwise same goes for int
+                  feel free to ask for my dc to chat!
+                     
 
 
